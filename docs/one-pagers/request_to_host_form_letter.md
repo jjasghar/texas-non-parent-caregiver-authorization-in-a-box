@@ -12,6 +12,7 @@ We are reaching out to request permission to set up a small assistance booth at 
 * Supply participants with copies of the notarized form for schools, doctors, and other agencies.
 
 **What we will bring:**
+
 - A portable all‑in‑one printer with Wi‑Fi hotspot, paper, pens, and a power strip.
 - A bilingual volunteer team (English/Spanish) plus a professional interpreter as needed.
 - An accredited Texas notary public (and, optionally, a volunteer attorney for legal questions).
